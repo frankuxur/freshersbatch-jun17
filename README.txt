@@ -1,0 +1,1 @@
+Few lines about the contents of the Assignement folder
